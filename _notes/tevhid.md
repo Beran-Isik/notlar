@@ -1,3 +1,2 @@
-[[Fenafillah]]
-[[Bekabillah]]
+[[Fenafillah]] ve [[Bekabillah]] olarak iki bölümde incelenebilir.
 

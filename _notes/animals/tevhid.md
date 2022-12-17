@@ -1,3 +1,0 @@
-[[Fenafillah]]
-[[Bekabillah]]
-
